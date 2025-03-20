@@ -1,1 +1,2 @@
 # -Venture-capital-entre-riesgo-y-xito
+El venture capital es una estrategia que ha atraído a inversores de alto patrimonio en busca de grandes oportunidades. Con inversiones en startups tecnológicas, promete retornos elevados, pero con un riesgo significativo. La clave está en la diversificación y la elección de proyectos con alto potencial. Para quienes cuentan con el capital y el tiempo adecuado, el VC puede ser una vía de crecimiento e innovación.
